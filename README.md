@@ -1,4 +1,4 @@
-## Vai tomar no cu :sory
+## bim di princisi pifivi sinti ni glick🥖
 
 <!--
 **leolennys/leolennys** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
